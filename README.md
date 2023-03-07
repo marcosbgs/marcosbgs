@@ -3,7 +3,7 @@
 
 - 🔭 Hoje trabalho como técnico em radiologia e estou em transição de carreira
 - 🌱 Estudando Análise e Desenvilvimento de Sistemas na PUC Minas
-- 👯 Interessado em aprofundar em toda tecnologia no caminho 
+- 👯 Interessado em conhecer o máximo de tecnologia disponível
 - 😄 Amo ouvir músicas, beber um cafezinho, estudar inglês e ler alguns livros
 - ⚡ Fun fact: só como de colher. Não gosto de usar garfo e faca 😅
 -->
